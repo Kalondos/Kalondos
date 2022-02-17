@@ -2,7 +2,7 @@
 - 👀 I’m interested in naistes, täpsustan blondiinides.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate in grupikad
-- 📫 How to reach me ...
+- 📫 How to reach me 51904430
 
 <!---
 Kalondos/Kalondos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
