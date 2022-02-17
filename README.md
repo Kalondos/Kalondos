@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Kalondos
+- 👋 Hi, I’m Vändagängster
 - 👀 I’m interested in naistes, täpsustan blondiinides.
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning eluülikool
 - 💞️ I’m looking to collaborate in grupikad
 - 📫 How to reach me 51904430
 
